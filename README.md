@@ -41,7 +41,7 @@ Juan Antonio Lleó,
 #### Tercera edición:
 1- Olga Juan(oljuanfe)
 
-2-
+2-Cristina Pérez Leiro
 
 3-
 
